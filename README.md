@@ -1,6 +1,6 @@
 ## Hi there 👋 I am Ali
 
-<!-- Profile ww-->
+<!-- Profile w-->
 
 ### Bitcoin
 
